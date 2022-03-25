@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kerlington
+- 👀 I’m interested in coding, lerning,  peace
+- 🌱 I’m currently learning Programação && Eletrônica
+- 💞️ I’m looking to collaborate on nothing special
+- 📫 How to reach me ... thinking better... don't try to!
